@@ -5,3 +5,6 @@ halo lagi ini di edit di lokal
 halo lagi
 
 wkwk
+
+nggak lucu
+kok ketawa
